@@ -1,3 +1,3 @@
-# publiv-voice
+# public-voice
 hai this is the voice of a girl who is very strong from inside.
 But she didn't experienced perfect love...
